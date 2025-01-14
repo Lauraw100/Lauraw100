@@ -1,5 +1,5 @@
 # 💫 About Me:
-😉Soy Laura Torres<br>🌆soy colombiana<br>🔰Me desempeño bien trabajando en equipo<br>🚀Me encantan los retos<br>🎶Me encanta escuchar musica<br>💥Me gustaria aprender variedad de lenguajes de programacion
+😉Soy Laura Torres<br>🌆soy colombiana<br>🔰Me desempeño bien trabajando en equipo<br>🚀Me encantan los retos<br>🎶Me encanta escuchar musica<br>💥Me gustaria aprender variedad de lenguajes de programacion<br>🚀Portafolio: https://laurat.netlify.app/
 
 
 ## 🌐 Socials:
